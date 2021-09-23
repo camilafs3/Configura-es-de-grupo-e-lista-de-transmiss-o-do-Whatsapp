@@ -1,0 +1,1 @@
+# Configura-es-de-grupo-e-lista-de-transmiss-o-do-Whatsapp
